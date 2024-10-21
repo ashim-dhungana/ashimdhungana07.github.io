@@ -1,2 +1,2 @@
-# ashimdhungana07.github.io
+# ashim-dhungana.github.io
 Website for self
